@@ -1,2 +1,2 @@
 # Mat2_2B
-aula de matematica_2 da turma 2B do colegio CEMAG
+aula de matemática_2 turma 2B do CEMAG - DAVI, LUCAS MOLL, JOÃO, IGOR STARUCHAK
